@@ -1,0 +1,2 @@
+# vebsaytim
+Mening shaxsiy saytim
